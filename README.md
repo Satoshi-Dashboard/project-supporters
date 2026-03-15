@@ -7,3 +7,4 @@
 | :bust_in_silhouette: satoshi | ₿ Donor | March 12, 2026 |
 | FlyTheElephant | Feedback | March 12, 2026 |
 | @Artilektt | Feedback | March 13, 2026 |
+| @clawbtc  | Feedback | March 14, 2026 |
