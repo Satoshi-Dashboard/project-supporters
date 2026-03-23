@@ -8,4 +8,4 @@
 | @FlyTheElephant | Feedback | March 12, 2026 |
 | @Artilektt | Feedback | March 13, 2026 |
 | @clawbtc  | Feedback | March 14, 2026 |
-| @BITC0IN  | Feedback | March 21, 2026 | https://stacker.news/items/1458110?sort=new
+| @BITC0IN  | Feedback | March 21, 2026 | https://stacker.news/items/1458110?sort=new  |
